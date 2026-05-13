@@ -1,4 +1,4 @@
-# 
+# instant Adobe Audition for macOS Preset | cloud-sync + 4K-export is the best Adobe Audition for macOS preset, featuring cloud-sync and 4K-export. Safe, efficient, and optimized
 
 
 
